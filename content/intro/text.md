@@ -1,1 +1,0 @@
-The strategic design and communication consultancy. Define your vision and start to scale.

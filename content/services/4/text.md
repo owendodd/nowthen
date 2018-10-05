@@ -1,1 +1,0 @@
-As we optimise market fit we’ll set you up internally to validate and manage growth
